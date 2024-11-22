@@ -4,7 +4,7 @@
 
 📫 How to reach me **kannanthuyavan@gmail.com**
 
-- 📄 Know about my experiences [Résumé](https://drive.google.com/file/d/1Ht8_YyJMzG8sHRImpKU3LNiSrQSs-Hbx/view?usp=drive_link)
+- 📄 Know about my experiences [Résumé](https://drive.google.com/file/d/13SJ51S0wqmt0BckK3s4viRpUn9iCUgw9/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
